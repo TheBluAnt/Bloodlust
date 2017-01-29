@@ -37,5 +37,3 @@ att man bygger ingen bättre värld med kulor, våld och krut.
 Heil Hitler, Heil Hitler, Heil Hitler, Heil Hitler, Heil Hitler.
 Heil Hitler, Heil Hitler, Heil Hitler, Heil Hitler, Heil Hitler.
 
-Read more: http://www.letssingit.com/eddie-meduza-lyrics-heil-hitler-m6hg86k#ixzz4X7AjZJFs 
-LetsSingIt - Your favorite Music Community 
