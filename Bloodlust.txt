@@ -6,7 +6,7 @@ Type:RPG
 Story Line:Main Character's village/family was killed off, he was the only surviver at age 2 years, he searches for the assassin.Foster family were old friends of his real family. Character is vengeful, only cares about hisself and his goal until he gets atached to friends later in game.
 Currency:Yes
 Hidden Abilities:Yes
-Programmers:Seth Bender, and Levi Moore
+Programmers:Seth Bender, Levi Moore, and Hunter Perry
 Rating:Teen
 Main Character:Den/Male/17/Caucasian/Swordsman
 Saves:Yes
